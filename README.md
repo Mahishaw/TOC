@@ -9,3 +9,8 @@
 #exp17
 
 ![image](https://github.com/Mahishaw/TOC/assets/117896534/f4e11a16-e6ef-4315-823c-961814b5ac90)
+
+
+#exp18
+
+![image](https://github.com/Mahishaw/TOC/assets/117896534/897ac60a-2762-4bef-9cf5-75b3aeebb1e3)
