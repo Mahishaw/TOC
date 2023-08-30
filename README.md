@@ -29,6 +29,11 @@
 #exp22
 ![image](https://github.com/Mahishaw/TOC/assets/117896534/e13683ee-bffc-4f5f-99fa-abf87ee08c3f)
 
+#exp 24
+
+![image](https://github.com/Mahishaw/TOC/assets/117896534/1452c7d0-8dae-43e3-8ac1-ad9c1aec8696)
+
+
 #exp23
 
 ![image](https://github.com/Mahishaw/TOC/assets/117896534/d9872e83-a3a6-454c-a0a3-a0f7463e89f6)
