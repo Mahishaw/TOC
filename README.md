@@ -52,6 +52,11 @@
 #exp27
 ![image](https://github.com/Mahishaw/TOC/assets/117896534/39ce21fa-4327-4f14-b7f3-e5cf8731354e)
 
+#exp29
+![image](https://github.com/Mahishaw/TOC/assets/117896534/48c28628-79fb-40d2-b04e-b3e064e25557)
+
+
+
 
 
 
