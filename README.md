@@ -46,6 +46,10 @@
 
 ![image](https://github.com/Mahishaw/TOC/assets/117896534/cbc9bc23-b670-46b0-ab1c-e311c43f7330)
 
+#exp26
+![image](https://github.com/Mahishaw/TOC/assets/117896534/f74673d6-c57e-4e1e-8ff9-2e187e66eeda)
+
+
 
 
 
