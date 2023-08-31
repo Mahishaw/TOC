@@ -59,6 +59,12 @@
 #exp 30
 ![image](https://github.com/Mahishaw/TOC/assets/117896534/ac41edd6-0f2a-418e-9949-e1f58a98fc61)
 
+#exp 33
+![image](https://github.com/Mahishaw/TOC/assets/117896534/d8bb7513-9f2b-4dcb-8334-66a96f2852a1)
+
+
+
+
 
 
 
